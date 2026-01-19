@@ -5,7 +5,7 @@ im 16, <img width="20" height="20" alt="image" src="https://github.com/user-atta
 
   [carrd.co](https://okkozi.carrd.co) <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/4dd2873b-f04c-4bd9-9212-095755888475" align="center" />
 
-<img wdth="80" height="80" alt="image" src="https://github.com/user-attachments/assets/e2f2f538-5b88-4feb-af87-41a8c7945000" align="bottom"/>
+
 
 
 
