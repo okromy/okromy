@@ -3,3 +3,6 @@
 [carrd](https://okkozi.carrd.co) ⋆ [pronounspage](en.pronouns.page/@okkozi)
 
 
+
+
+
