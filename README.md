@@ -17,4 +17,4 @@ adhd istp ⚤
 <img src="https://64.media.tumblr.com/93020a86605844e3eae98991d59da9d9/86bd00967544e2d5-17/s100x200/3f8b76993300bed77cc079a2fa1e43d84e1311aa.gifv" width="90" /> 
 
 
-![](https://komarev.com/ghpvc/?username=okromy&color=dc143c)
+![](https://komarev.com/ghpvc/?username=okromy&color=ff0000)
