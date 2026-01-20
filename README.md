@@ -4,7 +4,7 @@ hey im <em>romy</em> <br>
 im 16, <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/0cadbf85-d799-41e6-a5ec-dc75fa187530" /> <img width="21" height="20" alt="image" src="https://github.com/user-attachments/assets/4ad0e8c9-f49c-4027-ad80-e9e8de2fa269" /> </br>
   <a href="https://okkozi.carrd.co">carrd.co</a>  <img width="30" height="30" alt="image" src="https://github.com/user-attachments/assets/4dd2873b-f04c-4bd9-9212-095755888475" align="center" />
 
-adhd istp
+adhd, istp, single 
 
 
 
