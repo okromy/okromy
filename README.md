@@ -5,4 +5,4 @@
 
 adhd istp ⚤ 
 
-![](https://komarev.com/ghpvc/?username=okromy&color=ff0000)
+<img src="https://komarev.com/ghpvc/?username=okromy&label=angels&color=96bded" width="70" height="70" align="center"> <img src="https://64.media.tumblr.com/cba984459e11b00d1bf56aeda9d7553f/2a25a5e1abd64440-85/s250x400/4a0e51455a609fa4eca3e8b0bd25d5cb76eea2b9.gif" width="140" height="140" align="center">
