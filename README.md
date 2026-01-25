@@ -1,5 +1,5 @@
 <img src="https://i.pinimg.com/1200x/e3/a9/38/e3a9384e6634f324e60a289541402da6.jpg" width="425" height="100" alt="image"> 
-<br>
+
 <img src="https://i.pinimg.com/736x/35/59/d1/3559d1e5a4b0c84e9884e0942514df49.jpg" width="200" height="400" alt="image" align="left">
 
  <em>‎ 𓂃 romy</em>  or kozi <img src="https://64.media.tumblr.com/b48a142c322e72c0a6327b3fca698950/c0cfd9ebfb8acbde-38/s75x75_c1/08daa549eb1e60ba0704f2d36c03095d5cab4cdf.webp" width="20" height="20" align="center">16<br>
